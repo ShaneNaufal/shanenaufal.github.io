@@ -1,1 +1,0 @@
-# shanenaufal.github.io
